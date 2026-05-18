@@ -8,7 +8,7 @@
 - 🤖 Interested in AI/ML & Data Science
 - 🌐 Full Stack & UI/UX Enthusiast
 - 🚀 Open to collaborations
-- 📫 Reach me at: your-email@gmail.com
+- 📫 Reach me at: aditiraj2903@gmail.com
 
 ---
 
